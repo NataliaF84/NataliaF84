@@ -7,7 +7,9 @@
 - ...
 - 📫 How to reach me nalia2884@yandex.ru
 - ...
+Тефтелька - замечательный котик)
 
+Совершенно с этим согласна!
 <!---
 NataliaF84/NataliaF84 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
